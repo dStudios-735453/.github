@@ -12,4 +12,4 @@ Feedback for UniPlan (always appreciated): [tally](https://tally.so/r/KY5loz)
 
 ### Other Projects: none yet
 
-### Contacting me: [Discord](https://discordapp.com/users/794092045878165534), [Telegram](https://t.me/david_735453), [Reddit](https://www.reddit.com/user/David_735453/)
+### Contacting me: [Discord](https://discordapp.com/users/794092045878165534), [Telegram](https://t.me/david_735453), [Reddit](https://www.reddit.com/user/David_735453/), [e-Mail](mailto:david@dstudios.org)
